@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pikachu4Dev
 - 👀 I’m interested in investing
-- 🌱 I’m currently learning MBA
+- 🌱 I’m currently learning blockchains
 - 💞️ I’m looking to collaborate on Crypto Projects
 - 📫 How to reach me contact me.on telegram @lokurimpa2022
 - 😄 Pronouns: loku
